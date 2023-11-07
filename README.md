@@ -1,2 +1,2 @@
 # SOBER-STEPS
-SOBER STEPS IS A RECOVERY WEBSITE FOR ALCOHOL ADDICTS WHO CHOOSE THE PATH OF SOBRIETY. IT IS A HOLISTIC WEBSITE BASED ON HEALING.
+SOBER STEPS is a holistic website, driven on self-healing.. This is set up to help alcohol addicts to take the path of sobriety and celebrate life as it is!
