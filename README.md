@@ -1,2 +1,3 @@
 # SOBER-STEPS
-SOBER STEPS is a holistic website, driven on self-healing.. This is set up to help alcohol addicts to take the path of sobriety and celebrate life as it is!
+
+**SOBER STEPS** is a holistic website driven by the pursuit of self-healing. Our mission is to support individuals struggling with alcohol addiction, guiding them on the path to sobriety. Together, we celebrate life in its true essence.
